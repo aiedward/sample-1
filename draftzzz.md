@@ -1,1 +1,2 @@
-fuck trump
+dump trump
+go jill/hill
